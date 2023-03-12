@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sibgatullahamir2502@gmail.com**
 
-- ⚡ Fun fact **I Think I'm Funny**
+- ⚡ Fun fact : **I Think I'm Funny**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
